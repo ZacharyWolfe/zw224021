@@ -1,3 +1,3 @@
-- Future Software Engineer 
-- In Progress: Completing Bachelor's in Computer Science.
+- In Progress: B.S.C.S and Mathematics Minor
 - Ohio University class of 2026
+- 4.0 GPA
